@@ -2,7 +2,7 @@
 
 <img width="1200" height="70" alt="tumblr_1c0eb422560f762925a5c3a4d6695c3d_7cdb4e8e_1280" src="https://github.com/user-attachments/assets/81d8abf8-a4d4-4369-a959-09e4d7111622" />
 
-$${\color{purple}×~.~ˋ~🌺~Just-doing-my-part~゛ ᵎᵎ}$$
+$${\color{purple}× . ˋ 🌺Just-doing-my-part ゛ ᵎᵎ}$$
 
 ### [{× . 🌺 ~ Atabook}](https://bassiebloomington.atabook.org/) ~~ [{’ ★ - 🌻 En.Pronouns}](https://en.pronouns.page/@SPRINGBASSIE) 
 
