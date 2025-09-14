@@ -4,7 +4,7 @@
 
 $${\color{purple}× . ˋ 🌺Just-doing-my-part ゛ ᵎᵎ}$$
 
-### [{× . 🌺 ~ Atabook}](https://bassiebloomington.atabook.org/) ~~ [{’ ★ - 🌻 En.Pronouns}](https://en.pronouns.page/@SPRINGBASSIE) 
+### [{× . 🌺 ~ Atabook}](https://bassiebloomington.atabook.org/) ~~ [{’ ★ - 🌻 En.Pronouns}](https://en.pronouns.page/@SPRINGBASSIE) ~~ [𐔌  . 🌸 ⋮ Rentry  .ᐟ  ֹ 🍃 ꒱](https://rentry.co/BASSIEBLOOMIINGTON) 
 
 <img width="1280" height="149" alt="tumblr_76a1a4092c28295e296193cac40d8536_d70bbc92_1280" src="https://github.com/user-attachments/assets/f882b83d-85b3-41fd-a668-149c6eb8fb43" />
 
